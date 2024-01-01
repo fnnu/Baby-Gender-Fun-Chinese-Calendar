@@ -1,8 +1,8 @@
-Privacy Policy for "Baby Gender - FUN Chinese calendar" App
+Privacy Policy for "Baby Gender - Chinese Folklore" App
 
 Effective Date: [2023-12-27]
 
-Our "Baby Gender - FUN Chinese calendar" app (referred to as "the App") respects and protects the privacy of its users. This Privacy Policy explains how we collect, use, and disclose information when you use our App.
+Our "Baby Gender - Chinese Folklore" app (referred to as "the App") respects and protects the privacy of its users. This Privacy Policy explains how we collect, use, and disclose information when you use our App.
 
 Information Collection and Use:
 
@@ -22,8 +22,8 @@ Contact Us:
 
 If you have any questions or concerns about this Privacy Policy or the App's privacy practices, please contact us at [fn.nicu@gmail.com].
 
-By using the "Baby Gender - FUN Chinese calendar" App, you agree to the collection and use of information as outlined in this Privacy Policy.
+By using the "Baby Gender - Chinese Folklore" App, you agree to the collection and use of information as outlined in this Privacy Policy.
 
 This Privacy Policy is subject to the laws and regulations applicable in your jurisdiction.
 
-Last updated: [2023-12-27]
+Last updated: [2024-01-01]
